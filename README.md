@@ -2,9 +2,11 @@
 1st repository of my GitHub history
 
 
-Hello World
-Let's get started!
+Hello World..?
+
+So..
+What do I do now?
 ..
 Okay..
 
-Now what??
+Help?
